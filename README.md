@@ -1,1 +1,4 @@
-Hello Mr. Afif!
+Group member:
+1. Muhammad Rizki (20)
+2. 
+3. 
